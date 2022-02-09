@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2022 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to skating na roller blading
+- ⚡ Fun fact: I love to skating and roller blading
 
 ### Connect with me:
 
